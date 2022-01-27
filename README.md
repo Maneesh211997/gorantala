@@ -1,1 +1,2 @@
 # gorantala
+The basic fundamentals of database systems is Controlling the progression of data, how it is put away, how long to keep it, how would I manage it, is what number individuals treat day long. We have messages, downloaded records, faxes, paper mail, magazines, lists, and the rundown will proceed. Here and there how much paper or data is so overpowering individuals simply disregard it; or they toss everything out. This isn't a response, simply a method for causing the issue to appear to disappear. Assuming you are ready to go - you could lose everything.
